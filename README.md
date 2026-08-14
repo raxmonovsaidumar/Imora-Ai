@@ -11,3 +11,5 @@ Telegram : @raxmonov_saidumar
 Phone : +998881088018
 
 Owener Website : www.saidumar.uz
+
+apk : https://drive.google.com/drive/folders/1cBSgAyy52Ko0F-twGvW-rYK2VHExySeI?usp=drive_link
