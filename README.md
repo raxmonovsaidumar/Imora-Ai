@@ -12,4 +12,6 @@ Phone : +998881088018
 
 Owener Website : www.saidumar.uz
 
+Website : https://imora-ai.netlify.app/
+
 apk : https://drive.google.com/drive/folders/1cBSgAyy52Ko0F-twGvW-rYK2VHExySeI?usp=sharing
